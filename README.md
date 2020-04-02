@@ -1,2 +1,3 @@
 # noCtrlZ
 myFirstGit
+I KNOW WHAT TO DO BUT I CAN'T CUZ IM FIRED AT MY WORLD.
